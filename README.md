@@ -1,0 +1,1 @@
+Der KTS Lernpool besteht aus ausschließlich von Schülern der KTS erstellten Dateien und Mitschriften. Ein sehr großer Teil möchte seine Mitschriften ungerne teilen, dass ist aber falsches Denken. Wir sind ein Miteinander und kein gegeneinander. Mit Hilfe dieser Website hilft jeder der seine Zusammenfassungen zusendet anderen KTS Schülern beim Lernen.
